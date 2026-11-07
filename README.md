@@ -53,7 +53,7 @@ Jordan Italia 🐞
 
 Daiya Jacobs 🎒
 
-Alexis Root 🎵
+Nick Degnan 🎶
 
 Hello Class, Hello World
 
